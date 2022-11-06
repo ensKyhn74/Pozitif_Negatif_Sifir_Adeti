@@ -1,0 +1,1 @@
+# Pozitif_Negatif_Sifir_Adeti
